@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I'm 21<br>🤝 I’m currently looking for job<br>📫 Contact: jaroslawzwierz.kontkat@gmail.com<br>
+🌱 I'm 21<br>🤝 I’m currently looking for job<br>📫 Contact: jaroslawzwierz.kontakt@gmail.com<br>
 
 
 ## 🌐 Socials:
